@@ -6,4 +6,4 @@
 for any purpose, even commercially. You must give appropriate credit."
 ```
 
->yes i did even copy the description what are you gonna do about it huh? idc.
+>yes i did even copy the description...
